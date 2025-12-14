@@ -1,0 +1,1 @@
+Am invatat sa folosesc github deci sunt putin peste Edison aici, sau poate stie si el dar e prea prost sa il foloseasca
